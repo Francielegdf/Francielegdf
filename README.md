@@ -3,7 +3,7 @@
 Trabalho desde muito nova, começando os afazeres de casa e seguindo para a juventude com uma bela carteira assinada desde então transitei entre uma área e outra me tornando uma profissional com experiência em telemarketing, vendas e funções administrativas, sempre com foco em identificar oportunidades de melhoria e gerar resultados para a empresa.
 
 Desde cedo aprendi a importância de fazer o melhor com dedicação, mantendo portas abertas e buscando constantemente novas formas e tecnologias para otimizar o trabalho. Ao longo da minha trajetória, desenvolvi um olhar analítico e estratégico, identificando falhas em processos e propondo soluções que resultaram em:
-- Melhorias nos sistemas de CRM, reestruturação de banco de dados e melhorias da satisfação dos clientes;
+- Melhorias nos sistemas de CRM, reestruturação de banco de dados e mais satisfação dos clientes;
 - Organização e fidelização de clientes através de segmentação, reativação de inativos e estratégias personalizadas de vendas, resultando no aumento das taxas de conversão;
 - Implementação de ações corretivas em agendamentos e cadastros, evitando perdas financeiras e fortalecendo o relacionamento com clientes.
 
